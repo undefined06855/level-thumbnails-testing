@@ -1,2 +1,2 @@
-# level-thumbnails-testing
-hii
+# USE THE DISCORD SERVER TO ADD YOUR OWN THUMBNAILS 
+https://discord.gg/K6M4RduZxY
